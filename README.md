@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @caoyuchen111
 - 👀 I’m interested in Maths and programming
 - 🌱 I’m currently learning C++
-- 💞️ I’m looking to collaborate on developing a website(Although I am not an adult)
-- 📫 How to reach me ...Add me on WeChat (phone number: 17761993020)
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me ...Add me on WeChat (phone number: 17761993020)(I will not add you!)
 - 😄 Pronouns: ...WHAT IS IT!
 - ⚡ Fun fact: ...Nothing!
 
